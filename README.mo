@@ -1,1 +1,0 @@
-Just My conslt portfolio
